@@ -42,6 +42,7 @@ Total Email Phone Extractor автоматически использует ра
 -
 написать в телеграм ЛИЧНОЕ СООБЩЕНИЕ https://t.me/fradddyrad
 -
+![](https://raw.githubusercontent.com/moneyrobot2023/estrattoredati/3cae543a4e10287307702f02161b2327191613e4/0.jpg)
 
 
 
