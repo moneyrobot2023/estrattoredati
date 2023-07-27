@@ -3,7 +3,9 @@
 
 ![](https://skr.sh/i/270723/IsJpdFlz.jpg?download=1&name=Скриншот%2027-07-2023%2023:52:49.jpg)
 
-##Total Email & Phone Extractor
+Total Email & Phone Extractor
+-
+![](https://www.estrattoredati.com/wp-content/uploads/2022/01/logo-3.png)
 Total Extractor-это программа, предназначенная для поиска и экстраполяции данных из результатов поисковых систем (BING и GOOGLE). 
 -
 С помощью этого экстрактора вы можете получить информацию на основе введенных ключевых слов и в дополнение к названию и описанию вы можете экстраполировать 
@@ -25,7 +27,7 @@ Total Email Phone Extractor-это программное обеспечение
 -
 использовать.
 -
-
+![](https://www.estrattoredati.com/wp-content/uploads/2023/07/excel.png)
 Total Email Phone Extractor автоматически использует различные комбинации ключевых слов и запросов, чтобы максимизировать количество писем и телефонных
 -
 номеров, полученных для одного ключевого слова. Все полученные данные можно просматривать в программе в режиме реального времени, а после завершения
@@ -44,6 +46,15 @@ Total Email Phone Extractor автоматически использует ра
 написать в телеграм ЛИЧНОЕ СООБЩЕНИЕ https://t.me/fradddyrad
 -
 ![](https://raw.githubusercontent.com/moneyrobot2023/estrattoredati/3cae543a4e10287307702f02161b2327191613e4/0.jpg)
+
+видео обзор программы https://youtu.be/nYtVpDfMmbw
+-
+Total Email Phone Extractor 3.0  купить полную PRO версию https://DobroFile.ru/?s=76c644222
+-
+скачать Триальную версию программы https://www.estrattoredati.com/download/TotalExtractor.exe
+-
+![](https://www.estrattoredati.com/wp-content/uploads/2023/07/settings-search.png)
+
 
 
 
