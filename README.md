@@ -1,6 +1,7 @@
 # estrattoredati
 весь софт от www.estrattoredati.com
 
+![](https://skr.sh/i/270723/IsJpdFlz.jpg?download=1&name=Скриншот%2027-07-2023%2023:52:49.jpg)
 
 ##Total Email & Phone Extractor
 Total Extractor-это программа, предназначенная для поиска и экстраполяции данных из результатов поисковых систем (BING и GOOGLE). 
